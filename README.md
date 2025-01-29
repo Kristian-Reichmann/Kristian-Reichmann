@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me through myself
 - 😄 Pronouns: me, myself, and I
-- ⚡ Fun fact: I am currently bored
+- ⚡ Fun fact: I am currently bored and this gave me 3 minutes of entertainment
 
 <!---
 Kristian-Reichmann/Kristian-Reichmann is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
